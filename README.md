@@ -3,7 +3,7 @@
 **AI Engineer | MLOps Practitioner | LLM & Agentic AI Enthusiast | Mentor**
 
 📧 **Email:** roshanofficial97@gmail.com  
-📱 **Mobile:** 9101479953  
+📱 **Mobile:** +919101479953  
 🔗 **LinkedIn:** https://www.linkedin.com/in/roshan-sharma-49a097190  
 📸 **Instagram:** https://www.instagram.com/roshan_sharma09/
 
